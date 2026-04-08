@@ -2,7 +2,7 @@
 
 If you like this project please consider giving it a ⭐
 
-If you need help, have questions, or want a custom Discord bot made, contact me on Discord: **wmnds**
+If you need help, have questions, or want a custom Discord Bot With A Roblox System contact me on Discord: **wmnds**
 
 ---
 
